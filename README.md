@@ -1,5 +1,5 @@
 - 🐋 Whale hello there, I’m @PeterPuskic
-- 🌊 I’m a marine scientist studying the inmpacts and fate of plastic pollution
+- 🌊 I’m a marine scientist studying the impacts and fate of plastic pollution in the ocean
 - 🪸 I’m open to collaborate on all projects in the marine space
 - 🌴 Pronouns: he/him
 - 🐠 Fun fact: ...
